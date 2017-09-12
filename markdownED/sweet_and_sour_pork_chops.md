@@ -1,0 +1,24 @@
+#Sweet N Sour Pork Chops
+
+Ingredients: 
+
+ - 3 Tbsp orange marmalade   
+ - 2 Tbsp soy sauce   
+ - 1 tsp dijon mustard
+ - 1/8 tsp red pepper flakes
+ - 1/4 cup water
+ - 4 pork loin chops
+ - 1/4 tsp
+ - black pepper
+ - 1 tsp olive oil
+ - 1/2 cup thinly sliced green onions
+
+##Directions: 
+In a small bowl, combine marmalade, soy sauce, mustard, and hot pepper flakes. 
+Stir in water until well blended. Set aside.
+Season pork chops with black pepper. In a large nonstick skillet, heat oil over medium high heat. 
+Add chops; cook until lightly browned, turning once, about 2 minutes per side.
+Spoon marmalade mixture over chops; bring to a boil. Reduce heat to low.
+Cover and simmer until tender, about 15 minutes. Stir in green onion. 
+Place on serving plates and garnish with orange slices. Serve with any pan juices on the side
+

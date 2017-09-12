@@ -1,0 +1,10 @@
+# Butter Pecan Sauce 
+
+* 1/2 c Butter
+* 1 c Pecan pieces
+* 1 c Crystal brown sugar, packed
+* 1/3 c Heavy cream or 1 can (5 3/8 oz) evaporated milk
+* 1/4 c Corn syrup
+
+
+In heavy saucepan, melt butter. Add pecan. Heat until pecans are lightly toasted and butter is lightly browned. Stir in brown sugar, cream and corn sytup; cook gently until sugar is completely dissolved. Do not overcook. Serve warm or cold. 
